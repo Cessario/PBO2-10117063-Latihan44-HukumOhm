@@ -1,0 +1,2 @@
+# PBO2-10117063-Latihan44-HukumOhm
+PBO2-(OO)
